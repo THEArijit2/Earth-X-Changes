@@ -1,1 +1,1 @@
-# Earth-X-Changes
+# EarthXChange
